@@ -1,5 +1,5 @@
 # Blog Feedback
 
-Feedback/Discussion for [haoworld.dev](https://haoworld.dev)
+[筆記站](https://haoworld.dev)回饋討論。Well, if any 🤷
 
-Well, if any XD.
+Feel free to ask me anything or start a discussion.
